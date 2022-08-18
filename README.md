@@ -1,14 +1,18 @@
 
 # sou gigi
+## nasci em sao paulo
+## sou palmeirense
 ## tenho 15 anos
-### sou menina
-#### sou do ensino medio
-#### gosto de role
-#### gosto de dormir
-#### sou morena
-#### sou de libra
-#### gosto de macarrão com queijo
-#### gosto de loiras
-####gosto de serie
-##![image](https://user-images.githubusercontent.com/110929170/184942655-150d8d39-ceeb-4176-a88d-ecfc3fb00466.png)
-
+## sou camisa 9
+## sou menina
+## sou do ensino medio
+## gosto de role
+## gosto de dormir
+## sou morena
+## sou de libra
+## gosto de macarrão com queijo
+## faço aniversario em setembro
+## gosto de futebol
+## gosto de loiras
+## gosto de series
+##### geovanna.ramospereirade.lima@escola.pr.gov.br
