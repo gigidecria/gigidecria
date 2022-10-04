@@ -13,6 +13,6 @@
 ## gosto de macarrão com queijo
 ## faço aniversario em setembro
 ## gosto de futebol
-## gosto de loiras e morenas
+## gosto da morena
 ## gosto de series
 ##### geovanna.ramospereirade.lima@escola.pr.gov.br
