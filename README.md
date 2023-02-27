@@ -2,7 +2,7 @@
 # sou gigi
 ## nasci em são paulo
 ## sou palmeirense
-## tenho 15 anos
+## tenho 16 anos
 ## sou camisa 9
 ## sou menina
 ## sou do ensino medio
